@@ -104,3 +104,74 @@ závlahy - opatření, které funguje proti dvěma extrémům, ale znamená to, 
 nakonec bych řekl, že tím, jak se nám mění klima a mění se vhodnost - máme čím dál tím víc lokalit vhodných k pěstování vinné révy, tak ychom neměli zapomínat na ty staré poučky, které platí o umisťování citlivých kultur, mezi něž patří vinice a sady. do oblastí, kter é jsou náchylné na stékání studeného vzduchu. pokud připustíme odhady, které předkládáme jako reálné, tak musíme počítat s tím, že výskyt mrqzového poškození bude častější. a rpvní budou postiženy ty náchylnější oblasti. to znamená místa dole v pdlí, kde je nějaká překážka, která umožňuje, aby se tam studený vzduch držel a neodtékal z toho místa - mrazové kotliny. i když to vypadá, že tam vinice v nových podmínkách může existovat a ona skutečně pár let přežije. tak vyšší pravděpodbnost mrazu znamená, že je ta lokalita ještě rizikovější než byla v minulosti 
 
 s tím je potřeba pracovat.   
+
+Hlaváček
+
+
+Za dvacet let nebude možné pěstovat Müller Thurgau, Chardonnay?
+
+Možné to je, vyloučit se to nedá. Já mám spíš obavu, zda-li v našem regionu bude vůbec pěstována réva vinná jako taková. Ne z důvodu nedostatku vody, větší obavy mám z výskytu chorob jako je esca jako jsou stolbury a podobné, o kterých jsme nevěděli.
+
+Usuzuji z průběhu letošního roku, protože v letošním roce došlo ke skokovému nárůstu poškozených napadených keřů těmito chorobami.
+
+Jestli je to odrůda sauvignon nebo chardonnay, frankovka, andré....
+
+Těžko se dá předpokládat, jaký směr to vezme. Ale po debatách s kolegy z Rakouska, Chorvatska, Slovinska vímě, že na to zatím není nástroj nebo způsob, jak to omezit nebo vůbec vyloučit.
+
+Jsou první náznaky, že pokud sazenice révy vinné jsou ošetřeny tepelně před výsadbou mezi 60 65 stupni celsia na určitou dobu namočit do takto teplé vody, tak má být réva zdravá. Ale je otázka, jak dlouho to vydrží, protože některé plazmové choroby přenášejí živočišní škůdci, Tomu se nedá zabránit. Zatím vidíme u našich sousedů, že jediná forma je keř vyklučit, spálit.
+
+
+
+
+Co dělají choroby na keři?
+
+Změní se barva listu. Mění se i reliéf listu, okraje listu se začnou stáčet. List vypadá jako by byl z koženky. Réva neplodí a v dalším roce nevyraší. U escy je to tak, že keř žije a je to jako u člověka mrtvice. Zavadne uschne i s hrozny, tím je konec.
+
+
+
+
+Klimatická změna. Mění se skladba odrůd?
+
+Zatím s tím vinaři na Moravě neměli žádné problémy. V loňském roce se to počítalo na kusy. V letošním roce je to skoková záležitost. Mnozí vinaři se rozhodli ke značení nemocných keřů. Proto aby je v zimním období při řezu vynechali, vykopali a spálili. Tím se dostaneme do špatné pozice, protože pokud ten výskyt bude, tak jak se to rýsuje u některých odrůd půl na půl, kde je dneska třeba pět tisíc keřů na hektaru, yak tam zůstanou dva tři tisíce. Takže je to docela závažný problém, ale zatím nikdo neví, co s tím dělat, jak s tím dál, jakou odrůdou to nahradit, která by odolávala,
+
+Je to vidět i na těch rezistentních odrůdách. Modré odrůdy jsou takové polodivočáky a frankova v letošním roce, to je tristní pohled v době sklizně. Když to člověk prochází, vidí, že víc než polovina keřů je na odchodu. Asi by bylo nejúčinější vyklučit celou vinici a převést to zpátky do orné.
+
+Teď je otázka jak dál, čím osadit, jestli se najde chemická nebo biologická metoda, která by to vyřešila.
+
+Müller, Chardonnay....
+
+Jako praktik vnímám, že některé odrůdy během zimního období nejsou schopny nasávat vodu, ale vypařují vodu. Tím dochází k jejich ohrožení v zimě. Zažil jsem už v osdmesátých letech období, kdy réva nevymrzla, ale vyschla, protože neměla k dispozici dostatek vody v podzimním období, kdy ukončuje vegetaci a dělá si předzásobení. To jsou veltlíny zelený. A zaznamenal jsem u té m¨llerky, že tam při tom řezu na jaře je vidět, že to dřevo je postižený absencí vody. To se dá vyřešit, když se přejde na systém zavlažování. Tomu se dá předejít. Tam je jenom otázka, v jaké dávce, kdy kolik vody přidat. Zastávám názor, že je to řešitelné a stejně nás klimatická zmena donutí ze stávajícího systému hospodaření donutí přejít na závlahové hospodaření. jako pro všechny pěstiované plodiny, bez ohledu na to, jestli je to polní nebo trvalá kultura.
+
+stabilizovat celý ten region i pro potřebu zásobování obyvatel kvalitní pitnou vodou, protože to je spojitá nádoba. nedá se to rozdělit, voda je jenom jedna, i když má různé užití.
+
+měli ychom vodu ochránit i samostatným ústavním zákonem, že voda je národní bohatství. podle toho bychom se potom k vodě měli chovat a podle toho s ní hospodařit.
+
+v návaznosti na sucho. mění se skladba za posledních dvacet třicet let?
+
+mění se především skladba plevelu. jsou tady plevele, u kterých nevíme, co to je za plevele.
+
+mění se také skladba živočichů, hmyzu, atd. objevují se tady noví škůdci. mají jiný cykly, třeba obaleči u jablek. byla jedna generace, pak byly dvě, dneska už se objevuje i třetí generace. 
+
+zavíječ kukuřičný, ten tady nikdy nebyl a je.
+
+křístek. neznali jsme, je. 
+
+co se týká pěstovaných plodin, tam se to mění šlechtěním. dneska už ty nový technologie umožňují zrychlení procesu šlechtění, na suchovzdornost a odlonost.
+
+to se děje, toto šlo hodně rychle dopředu. myslím si, že se tento proces ještě zrychlí. tam bych neviděl zásadní problém. po této stránce zemědělci a šlechtitelé zareagovali. problém je ale v tom, když se získá třeba vysoká suchovzdornost, tak se zase mění kvalitativní znaky té pěstované plodiny, na které jsme byli zvyklí. ať už je to obsah lepku nebo dusíkatých látek. potom je to otázka kvality pečiva a takových věcí.
+
+budeme muset dospět ke kompromisu, abychom to vybalancovali tak, aby to mělo nějakou míru suchovzdornosti, ale ay byly zachovány kvlaitativní znaky, aby to neylo na úkor té kvality, že to potom nebude použitelné v následné produkci potravin,
+
+posouvá se na vysočinu, do horských oblastí.
+
+dneska všichni hmatatelné ví, že z intenzivních oblastí se stávají extenzivní oblasti. neboli oblasti LFA, zranitelné oblasti. zranitelnéí tím, že jsou tady deficity v průběhu vegetačního období co se týká vody, ale především teplotního stresu. to jsou dva extrémní jevy, voda a teploa. s tím nikdo zatím nepracoval, začíná se s tím pracovat, ale probléím je že se to nepromítá do zemědělské politiky, neprojevuje se to v dotačních zásadách, protože dneska LFAčka jsou nejintenzivnější, nejstailnější oblasti pro zemědělskou výrobu. důkazem toho je vysočina, kde se zvýšila průměrná teplota, srážky zůstaly, takže se jim podmínky pro pěstování zemědělský plodin zlepšily, tady je viděrt, že k tomuto výraznému posunu došlo. když se podíváte na výnosovou řadu deset patnáct let obiloviny, kuukřice, řepka, brambory, ti kteří měli odvahu, si tam vysadili meruňky, broskve a dneska jim tam dozrávají bez rizika, že jim to zmrzne.
+
+je to vidět i v polsku, kde už dneska vysazují vinice. a docela úspěšně se účastní hodnocení vín na mezinárodních soutěžích a dosahují vynikajících výsledků. 
+
+O tom nikdo nemůže pochybbovat, ale musíme najít odvahu začít to normálně, zdravým selským rozumem řešit. K tomu není potřeba žádný bádání, jenom jednoduchá selská úvaha.
+
+Riziko pozdních mrazů.
+
+To je logický. Tím, jak se otepluje, se prodlužuje vegetační doba. Příroda začíná vegetovat dříve, než bylo obvyklé, Letos to bylo o tři týdny zcela hmatatelně. Pak stačí jeden den nebo hodina poklesu teploty a je mrazové poškození – je jedno, jestli je to réva nebo ovocný strom a jsou to i běžně pěstované polní plodiny
+
+2012 došlo ke zmrznutí ječměnů a pšenic, mráz došel v době, kdy obiloviny dokvétaly, takže došlo k poškození květenství a nedošlo vůbec k oplození a k tvrobě obilek, takže jsme mlátili doslova do písmene prázdnou slámu.  
