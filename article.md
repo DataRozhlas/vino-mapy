@@ -58,7 +58,7 @@ Pokud by na jižní Moravě už nebyly vhodné podmínky pro suchá bílá vína
 
 „Nicméně tento pozitivní vývoj se nezastaví v nějakém optimu. Bohužel, změna klimatu, která je už teď evidentní, bude pokračovat přinejmenším stejným tempem jako dosud. A vinaři by měli počítat s tím, že už v příštích patnácti dvaceti letech nebudou schopni v bílých odrůdách vyprodukovat stejně kvalitní víno s nižším obsahem cukru jako dnes, protože na něj bude zkrátka příliš teplo.“
 
-Změny klimatu pomáhají kvalitě vín například také ze Spojených států, z Británie, a dokonce i z Polsku. „Vinaři zažívají kulturní šok. Zatím je to pořád spíš exotika, ale oblasti, které nikdy nevynikaly, jsou dnes schopny produkovat pitelná vína,“ říká Trnka.
+Změny klimatu pomáhají kvalitě vín například také ze Spojených států, z Británie, a dokonce i z Polska. „Vinaři zažívají kulturní šok. Zatím je to pořád spíš exotika, ale oblasti, které nikdy nevynikaly, jsou dnes schopny produkovat pitelná vína,“ říká Trnka.
 
 ## Oteplování přináší mráz
 
