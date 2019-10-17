@@ -11,7 +11,7 @@ Víno dozraje i ve vyšších nadmořských výškách – a tradiční středoe
 
 Klimatická změna však zároveň v Česku zvyšuje četnost nenadálých jarních a podzimních mrazů, které mohou zničit nejen jednu úrodu, ale i celé trvale plodící vinohrady. Rozmach moravského a českého vinařství zbrzdí také častější výskyt nových nemocí a škůdců i zhoršující se sucho hlavně v níže položených oblastech.
 
-Ukazují to výpočty a [mapy pravěpodobného budoucího vývoje Huglinova indexu](https://www.klimatickazmena.cz/cs/?l=63), které vytvořili vědci z CzechGlobe – Ústavu výzkumu globální změny Akademie věd.
+Ukazují to výpočty a [mapy pravěpodobného budoucího vývoje Huglinova indexu](https://www.klimatickazmena.cz/cs/?l=63), které vytvořili vědci z CzechGlobe – Ústavu výzkumu globální změny Akademie věd a také zkušenosti jednotlivých vinařů: „Už teď je vidět, že je rok od roku větší sucho. Extrémní byl loňský rok, kdy bylo srážek minimum. I letos vidím, že je opravdu sucho. Má to vliv na kvalitu hroznů, ale hlavně na výnosy. Každý rok také víno dozrává dřív a dřív,“ řekl Českému rozhlasu Čeněk Osička, vinař z Velkých Pavlovic.
 
 ## Teploměr nejen pro vinaře 
 
@@ -28,9 +28,9 @@ _Následující grafika ukazuje základní stupnici Huglinova indexu. Vlevo naho
 
 I když průměrná teplota by v příštích dvaceti letech neměla podle dostupných modelů stoupnout o víc než 0,8 stupně Celsia, v součtu průměrných a maximálních teplot za celý rok, je změna dramatičtější. Stejně významné jako celoroční součet pak bude meziroční kolísání v jejich hodnotách a to, jak velké budou jednotlivé extrémní výkyvy.
 
-„Celkově je ale zřejmé, že se bude dál oteplovat, a tedy hodnota Huglinova indexu poroste,“ shrnuje výsledky modelování klimatolog Trnka. „Proto se na jižní Moravě posunume z oblastí primárně teplotně vhodných pro bílé odrůdy spíš do červených odrůd. Závisí to ovšem na konkrétním umístění viniční trati, kolik je tam slunce, jaká je to expozice, a také na preferenci zákazníků, jaký charakter vína z té lokality chtějí získat.“
+„Celkově je ale zřejmé, že se bude dál oteplovat, a tedy hodnota Huglinova indexu poroste,“ shrnuje výsledky modelování klimatolog Trnka. „Proto se na jižní Moravě posunume z oblastí primárně teplotně vhodných pro bílé odrůdy spíš do červených odrůd. Závisí to ovšem na konkrétním umístění viniční trati, kolik je tam slunce, jaká je to expozice, a také na preferenci zákazníků, jaký charakter vína z té lokality chtějí získat.“ 
 
-## Pitelné víno z Polska
+## Obrovský problém
 
 Právě pro jihomoravské vinaře zpracoval CzechGlobe ještě detailnější mapu, která pracuje s optimističtějším scénářem RCP 4.5. Vyplývá z ní, že zatímco teplotní podmínky pro pěstování modrých odrůd révy vinné, z nichž se vyrábí červené víno, se budou zlepšovat, ten, kdo se nyní chystá vysadit tradiční bílé odrůdy jako je Müller Thurgau nebo Sylvánské zelené, může být v příštích letech kvalitou úrody zklamaný.
 
@@ -38,6 +38,14 @@ Právě pro jihomoravské vinaře zpracoval CzechGlobe ještě detailnější ma
 <img src="https://www.irozhlas.cz/sites/default/files/uploader/huglin_191016-132317_pek.png" class="embed" width="100%"></img>
 <div style="text-align:right; width:100%; margin-top:-20px; margin-bottom:20px">Zdroj: <a href="https://www.klimatickazmena.cz/cs/?l=63">CzechGlobe – Ústav výzkumu globální změny</a></div>
 </wide>
+
+„Zatím jsme se tomu moc nevěnovali, ale do budoucna musí člověk opravdu zvážit, co bude vysazovat,“ říká při pohledu na prognózu vinař Osička z Velkých Pavlovic.
+
+„Vývoj určitě spěje k odrůdám, které mají pozdnější dozrávání. Vypadá to, že skoré odrůdy, které máme na vinicích dnes, za dvacet třicet let už nebudou ekonomicky dobře vycházet.“
+
+Pokud by na jižní Moravě už nebyly vhodné podmínky pro suchá bílá vína, byl by to podle něj obrovský problém: „Český konzument má radši bílá vína. Vidím to z vlastního prodeje, kde tvoří 80 až 85 procent.“
+
+## Pitelné víno z Polska
 
 „Poslední generaci zažíváme zlepšování klimatických podmínek pro pěstování vína na Jižní Moravě i v dalších českých vinařských oblastech,“ říká klimatolog Miroslav Trnka.
 
