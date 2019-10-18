@@ -51,7 +51,7 @@ Pokud by na jižní Moravě už nebyly vhodné podmínky pro suchá bílá vína
 
 <right>
 <h4>Příběhy sucha</h4>
-<p>Detailní mapy podnebí na jihu Moravy jsou součástí projektu <a href="https://www.pribehysucha.cuni.cz/PS-1.html">Příběhy sucha</a>.</p>
+<p>Detailní mapy podnebí na jihu Moravy jsou součástí projektu Technologické agentury ČR <a href="https://www.pribehysucha.cuni.cz/PS-1.html">Příběhy sucha</a>.</p>
 <p>Společenští vědci v něm společně s kolegy z přírodovědných oborů zkoumají, jak česká společnost reaguje na zhoršující se sucho.</p>
 <p>Český rozhlas na projektu spolupracuje tak, že jeho výsledky zprostředkovává veřejnosti.</p>
 </right>
@@ -66,6 +66,7 @@ Vinaři na jihu Moravy by se měli připravit také na to, že jejich úrodu v p
 
 <wide>
 <img src="https://www.irozhlas.cz/sites/default/files/uploader/pozdni_mraz_191016-132317_pek.png" class="embed" width="100%"></img>
+<div style="text-align:right; width:100%; margin-top:-20px; margin-bottom:20px">Zdroj: <a href="https://www.klimatickazmena.cz/cs/?l=63">CzechGlobe – Ústav výzkumu globální změny</a></div>
 </wide>
 
 Dřívější start a pozdější konec vegetační sezony znamená, že rostliny musejí přežít podstatně delší chladné noci – v době jarní a podzimní rovnodennosti se [délka dne mění nejrychleji z celého roku](https://www.meteogram.cz/vychod-zapad-slunce/). Přízemní vrstva vzduchu se během dlouhých nocí může nečekaně hodně ochladit. Pokud v něm není dost vodní páry, která by se srazila a bránila dalšímu poklesu teploty, a nefouká vítr, klesne teplota pod nulu.
